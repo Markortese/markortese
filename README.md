@@ -15,7 +15,7 @@
 ---
 
 ## 🔗 Find me online
-- 🌐 Website: https://markortese.me/
+- 🌐 Website: https://markortese.tech/
 - 💼 LinkedIn: https://www.linkedin.com/in/ortese-mark/
 - 📺 YouTube: African Fables & Folklore
 - 🐦 Twitter/X:  https://x.com/OrteseMark
